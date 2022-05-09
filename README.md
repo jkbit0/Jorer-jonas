@@ -8,4 +8,3 @@
 - 📫 How to reach me: Discord Jorer#1617, Or my Website Contact Form.
 - 😄 Pronouns: He
 - ⚡ Fun fact: I love Busses
--->
